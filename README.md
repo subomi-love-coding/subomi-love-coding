@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @subomi-love-coding 
+- 👀 I’m interested in coding, reading, listening to music, and dancing
+- 🌱 I’m currently learning html and css
+- 💞️ I’m looking to collaborate on ...
+- 📫 you can reach me on my email-subsdams@gmail.com
+- thank you 
+--->
